@@ -1,4 +1,4 @@
-![image](https://github.com/Matheusdias00/matheusdias/assets/171153306/6ce37286-a496-4e1e-ad4e-990170127d2f)# Boas vindas ao meu perfil 💙💙
+# Boas vindas ao meu perfil 💙💙
 
 Meu nome é nome Matheus Dias 
 
